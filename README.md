@@ -1,2 +1,0 @@
-# devloper-deploy
-jerutgefreugfjebhkih4ikrnrgkrmflfkemdjgeieuli
